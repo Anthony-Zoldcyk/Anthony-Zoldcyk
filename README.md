@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Anthony-Zoldcyk
+- 👀 I’m Interested in Traveling
+- 🌱 I’m currently learning Japanese
+- 💞️ I’m looking to collaborate on Nothing
+- 📫 How to reach me Idk
